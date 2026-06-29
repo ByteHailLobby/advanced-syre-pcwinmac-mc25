@@ -1,4 +1,4 @@
-# 
+# Leve Advanced SystemCare ferramentas para Mac OS | Profissional Advanced SystemCare ferramentas para PC Windows. Com notificacoes de alerta e protecao por senha — otimizado para máximo desempenho em cada plataforma.
 
 
 
